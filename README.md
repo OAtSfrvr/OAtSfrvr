@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OAtSfrvr
-- 👀 I’m interested in robotic engineering, and my girl
+- 👀 I’m interested in robotic engineering, and games
 - 🌱 I’m currently learning anything that seems fun to take time
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me. no
